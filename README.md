@@ -1,1 +1,1 @@
-# Kino33pro
+# Kino33
